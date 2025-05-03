@@ -1,1 +1,1 @@
-Se tornando automatico e minha prática irá crescer mais e mas
+Com a prpatica se tornando automatico e minhas práticas irá crescer mais e mais
